@@ -1,1 +1,2 @@
-non capisco a che serva questo coso, bear with me.
+bear with me, i still have to understand this whole GitHub system.
+more programs to come 
